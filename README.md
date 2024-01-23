@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **backend**
 
-- 📫 How to reach me @asadbektuygunov9gmail.com
+- 📫 How to reach me **@asadbektuygunov9gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
